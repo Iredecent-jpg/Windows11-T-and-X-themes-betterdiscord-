@@ -1,0 +1,1 @@
+all u got to do is open ur discord (make sure u have betterdiscord installed) find themes button and then press open themes folder and drop the file that u just downloaded into the folder for themes on betterdiscord
